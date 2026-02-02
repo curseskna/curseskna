@@ -25,3 +25,6 @@ ${{\color{#E18802}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}
   </p>
 </details>
 
+<p align="center">
+  <img src="https://i.postimg.cc/7P1JMVJS/Untitled228-20260201190720.png" width="100%"/>
+</p>
