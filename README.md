@@ -1,26 +1,27 @@
                                                  :;(∩´﹏`∩);:
 <p align="center">
-${{\color{#C8C8B7}{\text{hii hello welcome to profile!!}}}}$
+  <img src="https://i.postimg.cc/x81x5d58/IMG-9225.png" width="600">
+</p>
 <p align="center">
-${{\color{#C0B495}{\text{this is simply only for ponytown..!}}}}$
+${{\color{#F3DF92}{\text{hii hello welcome to profile!!}}}}$
 <p align="center">
-${{\color{#BB9390}{\text{i am usually a gojo/yuki pony if you see me!}}}}$
+${{\color{#F0D777}{\text{this is simply only for ponytown..!}}}}$
 <p align="center">
-${{\color{#B08086}{\text{and if you do, feel free to interact or cuddle! i find comfort from it.}}}}$
+${{\color{#F1D25B}{\text{i am usually a gojo/yuki pony if you see me!}}}}$
 <p align="center">
-${{\color{#9E686E}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}}}$
+${{\color{#E7B12D}{\text{and if you do, feel free to interact or cuddle! i find comfort from it.}}}}$
+<p align="center">
+${{\color{#E18802}{\text{only if you want... but hey! i dont bite ( ´ ▽ ` )}}}}$
   
 <p align="center">
-  <img src="https://i.postimg.cc/Qdf3Z5Gv/IMG-8928.png" width="600">
+  <img src="https://i.postimg.cc/x81x5d58/IMG-9224.png" width="600">
 </p>
 <p align="center">
 <details>
-  <summary>${{\color{#a56182}{\text{go hit that 껌 질겅 !}}}}$</summary>
+  <summary>${{\color{#E1B002}{\text{go hit that 껌 질겅 !}}}}$</summary>
 </p>
   <p align="center">
-    i dont really have a dni
+    i dont really have a dni js dont be weird lwk.. or illegal !
   </p>
 </details>
 
-<p align="center">
-<img src="https://files.catbox.moe/gkfwox.png" width="65%">
