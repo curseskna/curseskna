@@ -1,5 +1,6 @@
 <p align center">
- ${{\color{#a42929}{\text{oh his ass deserves that 👀}}}}$ <img src="https://i.postimg.cc/0NztqRFH/IMG-9940.jpg"
+ ${{\color{#a42929}{\text{got bored}}}}$
+</p>
 
-<p align="center">
-<img src="https://i.postimg.cc/pTqM1tFq/IMG-9937.webp" width="100%">
+<p align="center"
+<img src="https://i.postimg.cc/2555kT70/IMG-9943.gif>"width="100%">
