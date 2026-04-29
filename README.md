@@ -1,7 +1,5 @@
 <p align=center">
-   ${{\color{#a42929}{\text{Green grass breaks through snow,
-Artemis pleads for my help,
-I am so awesome.}}}}$
+   ${{\color{#a42929}{\text{WAHHHZUHHHHHHP.}}}}$
 </p>
 
 <p align=center">
